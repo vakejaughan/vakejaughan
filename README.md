@@ -1,4 +1,3 @@
 - 👋 Hi, I’m Jake Vaughan
-- 📫 How to reach me jjvaug22@smumn.edu
+- 📫 Based in Colorado
 - ⚡ Fun fact: I am an NCAA All-American Scholar and former semi-professional Ice Hockey Player
-- Based in Colorado
