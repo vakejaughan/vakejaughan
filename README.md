@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Jake Vaughan
 - 📫 Based in Colorado
-- ⚡ Fun fact: I am an NCAA All-American Scholar and former semi-professional Ice Hockey Player
+- ⚡ Fun fact: I am an NCAA All-American Scholar and former professional Ice Hockey Player
